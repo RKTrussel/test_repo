@@ -1,1 +1,0 @@
-# Russel Ken A. Tano
